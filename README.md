@@ -2,7 +2,7 @@
 
 Are you prepared to take the front on the leaderboard and master Prodigy Maths? Using the correct tricks and hacks may make understanding Prodigy Math simpler, whether you're a parent trying to assist your child succeed or a student looking for an advantage in math class. We'll look at a number of Prodigy cheats in this extensive tutorial to improve your maths and gaming.
 
-![prodigymath](https://github.com/prodigyhackst/cheats/assets/135128640/ee02ab0a-9809-4dc0-af5e-0ca56a7e78fe)
+[![prodigymath](https://github.com/prodigyhackst/cheats/assets/135128640/ee02ab0a-9809-4dc0-af5e-0ca56a7e78fe)](https://shorturl.at/csUXE)
 
 **[GET The Ultimate Prodigy Math Cheats Here - CLICK!](https://shorturl.at/csUXE)**
 
